@@ -7,4 +7,7 @@ Estou no GitHub principalmente para as seguintes ações:
 - Meu desenvolvimento pessoal em programação ⬆️;
 
  Para entrar em contato comigo, acesse;
- @hillary_sv 📷
+ 
+  @hillary_sv 📷
+
+![](https://capricho.abril.com.br/wp-content/uploads/2017/09/moana-colar.gif)
